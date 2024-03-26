@@ -1,1 +1,1 @@
-# My_portfolio
+Hello, I'm Joel Muia. I'm passionate about Web development, Cybersecurity expert and programming. I have 2 years of experience in web development and I achieved an award last year after designing a website for Hommies CCTV dealings enterprise, I strive to achieve several goals in information technology.
